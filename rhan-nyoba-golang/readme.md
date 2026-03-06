@@ -1,0 +1,1 @@
+belom ada ide, yang penting pull request aja dulu :v
